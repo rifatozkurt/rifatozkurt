@@ -70,7 +70,7 @@ Not on GitHub, but happy to talk about them:<br/>
 
 ### 🏔️ Away from the keyboard
 
-⛷️ Mountains, mostly on skis · 🎸 Electric guitar & Accordion
+⛷️ Mountains, mostly on skis - 🎸 Electric guitar & Accordion
 
 ---
 
